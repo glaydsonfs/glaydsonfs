@@ -1,4 +1,4 @@
-![App Screenshot](https://i.imgur.com/4hRbsbO.png)
+![App Screenshot](https://i.imgur.com/7EtL8DK.png)
 
 ## Olá! 🖖 Prazer, sou o Glaydson.
 
